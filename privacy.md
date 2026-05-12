@@ -18,7 +18,7 @@ We use the collected information to:
 We implement appropriate technical and organizational measures to protect the security of your personal information. We do not sell your data to third parties.
 
 ## 4. Your Rights
-You may request to access, correct, or delete your personal data by contacting us at [Таны и-мэйл хаяг].
+You may request to access, correct, or delete your personal data by contacting us at [naranbaatar.naraa0815@gmail.com].
 
 ## 5. Contact Us
-If you have any questions about this Privacy Policy, please contact us at [Таны и-мэйл хаяг].
+If you have any questions about this Privacy Policy, please contact us at [naranbaatar.naraa0815@gmail.com].
